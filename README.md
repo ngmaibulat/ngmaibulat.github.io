@@ -1,1 +1,0 @@
-# ngmaibulat.github.io
